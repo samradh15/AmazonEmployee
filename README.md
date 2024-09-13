@@ -1,1 +1,1 @@
-gyus kaaam karo backchodi nhe
+guys kaaam karo backchodi nhe
